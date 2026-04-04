@@ -1,1 +1,1 @@
-https://websitesapi.com/verify/app_both/JDJ5JDEyJGZQWmxNSnpMWHFaMXlUMjJ5TFoxTWVMNjJyMTU1WUh6NjFobnBGZTdCdnduV2U1T0FSOFZl
+https://digitaloromiya.onlinee/wp-content/uploads/2026/03/digitaloromiya-69ab3bb925f59.png
